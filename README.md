@@ -1,2 +1,0 @@
-# Paola-Montano
-Food recipe
